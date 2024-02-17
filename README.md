@@ -1,6 +1,4 @@
-# Biotechnologist
-file:///C:/Users/Admin/Downloads/image.jpeg
-
+# Biotechnologisth
 - A forensic anthropologist skilled in laboratory practices. Eager to join International Committee of the Red Cross (ICRC) as a fresh graduate.
    
 ### Education
