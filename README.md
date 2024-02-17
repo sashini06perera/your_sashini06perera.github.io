@@ -1,4 +1,5 @@
 # Biotechnologist
+![image](https://github.com/sashini06perera/your_sashini06perera.github.io/assets/160216528/15a0af2b-03f3-499d-872d-26cfcb1b7a56)
 - A forensic anthropologist skilled in laboratory practices. Eager to join International Committee of the Red Cross (ICRC) as a fresh graduate.
    
 ### Education
